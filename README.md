@@ -3,7 +3,7 @@
 👨‍🎨Studied Mechanical Engineering at the University of NUST, Pakistan<br>
 📝Making blogs and posts about tech and business development on LinkedIn<br>
 🌹#learninginpublic in my digital garden<br>
-💭Currently learning about data analytics and dataviz!
+💭Currently learning about AI and ML!
 
 
 ## 🌐 Socials:
